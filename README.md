@@ -1,7 +1,9 @@
 Olá!
 
-🚩 - Tenho 16 anos
+🚩 - Tenho 17 anos
 
-🏫 - Atualmente faço curso técnico em desenvolvimento de sistemas
+🏫 - Tenho curso técnico em desenvolvimento de sistemas
+
+🏫 - Atualmente fazendo a minha graduação em análise e desenvolvimento de sistemas.
 
 🎰 - Fluente em inglês 
